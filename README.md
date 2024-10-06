@@ -26,3 +26,53 @@ Lights, temperature, sound. The ability that he can do it. So can we. Test quizz
 
 Your continued efforts. There will continue to be opportunities. More and more. All created by myself
 你持續的努力。就會持續地擁有機會。越來越多。都是自己創造出來的
+
+聲音很重要
+畫面更重要
+一切都需要更新
+
+唱歌畫面更新
+城市更新
+
+一切都需要更新
+
+這些力量 在於你
+你需要創造
+這些力量
+
+人們需要 搬家
+停留的空間
+需要蓋飯店
+
+人類絕對有需求
+
+餐飲飯店 新建築物
+
+人類都需要 新的設施 公園 游泳池 球場
+持續的清潔
+人們絕對需要
+價值 價格
+消費 能力
+人類需要
+需要更新
+
+翻修 翻新
+人類想要 
+人類需要
+而你可以幫助他們
+你來做這些事情
+你來幫忙
+這些 
+政府 無法做到的事情 無法幫忙的
+我們來做
+
+國家城市 街道 翻新 翻修
+新建築物
+
+我們來做
+
+必須做
+不能浪費機會 不能錯過
+
+就是現在 
+更新翻修
