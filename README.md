@@ -22,3 +22,7 @@ Lights, temperature, sound. The ability that he can do it. So can we. Test quizz
 
 
 燈光 溫度 聲音。他可以做到的能力。我們也可以。每個人都可以通過的測試測驗。
+
+
+Your continued efforts. There will continue to be opportunities. More and more. All created by myself
+你持續的努力。就會持續地擁有機會。越來越多。都是自己創造出來的
